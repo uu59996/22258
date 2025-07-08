@@ -28,4 +28,4 @@
 本页面仅汇总公开的日本AV免费资源链接，所有内容版权归原站所有。请用户遵守所在地法律法规，合理使用资源，不得用于非法传播或商业用途。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/uu59996/22258 ）</span>
